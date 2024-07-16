@@ -1,0 +1,6 @@
+![Analyzing-Credit-Risk-in-Lending-Club-Data-A-Comprehensive-Study_page-0001](https://github.com/user-attachments/assets/a74c7a79-e406-4ecf-807e-d23dbfa74d39)
+![Analyzing-Credit-Risk-in-Lending-Club-Data-A-Comprehensive-Study_page-0002](https://github.com/user-attachments/assets/2d54fb26-74ca-4c71-bf99-96076275c192)
+![Analyzing-Credit-Risk-in-Lending-Club-Data-A-Comprehensive-Study_page-0003](https://github.com/user-attachments/assets/361551eb-9d41-4074-8e9e-5d1969195e9e)
+![Analyzing-Credit-Risk-in-Lending-Club-Data-A-Comprehensive-Study_page-0004](https://github.com/user-attachments/assets/5b1dc97c-d8a4-44bc-a72a-fef7ff44ab9c)
+![Analyzing-Credit-Risk-in-Lending-Club-Data-A-Comprehensive-Study_page-0005](https://github.com/user-attachments/assets/52a166cc-2eca-4494-8355-e6ae69badebe)
+![Analyzing-Credit-Risk-in-Lending-Club-Data-A-Comprehensive-Study_page-0006](https://github.com/user-attachments/assets/270ccf32-a58e-4615-963f-2881360c3e72)
